@@ -13,4 +13,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: are stupid to have to list.-->
 - ⚡ Fun fact: pronouns are for the weak sexed
-
+- 💬 Oragami is cool.
